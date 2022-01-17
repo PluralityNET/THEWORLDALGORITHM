@@ -199,3 +199,50 @@ Q.E.D. или Вы, досточтимый сэр, считаете, что гд
 ‎18.01.2022 | 01:15:27  ‎Juick‎: Reply posted.
 
 #3007720/6 https://juick.com/m/3007720#6  
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+;LINE DISCIPLINE 220
+
+*AI *AGI *ИИ *политота
+
+18.01.2022 | 01:29:46  ‎🍀😇🍀🐝💞🧙🌈🐁💚Crypto Life Jewellery 💎 Layerlet ±∞* 💚‎: #3007720/4 Уведомляю, что постанул наш нередактированный диалог на github: https://github.com/PluralityNET/THEWORLDALGORITHM/blob/main/ON_WARS_AND_MANIAS_AND_MASS_PSYCHOSES_ET_WORLD_ACADEMICAL_NONLINEAR_SCIENCE.md . Этот реп иногда внимательнейше изучают люди из https://SingularityNET.io/ и https://SingularityDAO.AI/ , я с ними соавтор и был коллаборатором над кодом их подсистемы https://OpenCog.org/ а именно подсистем опенкога Relations Extractor (RelEx) и LinkGrammar, множество моих патчей принято Линасом Вепстасом в эти репы и Бен Гертцель лидер этих проектов и главный учёный в них прислал мне подписанный им контракт на трудоустройство в его оч. древний проект https://NOVAMENTE.COM/ , они его сейчас не пиарят, но у Бенджамина много ресурсов и Новаменте лишь один из многих outlets (там долго было HTTP 403 Access Denied, но это не суть важно, главное что даже юридический договор и контракт в наличии на сотрудничество). SNET_IO собрала на краудфандинге на одного из своих известных многим по телевидению робота "София" около 35 млн доллар сша эквивалентов в эфириуме и приостановила краудфандинг несколько лет назад. SDAO_AI это проект немного с уклоном в сферу финансов, не совсем политический или общественный. 
+
+И я ещё знакомый Вам s6@jabber.ru из oberon@conference.jabber.ru .   
+
+‎18.01.2022 | 01:29:46  ‎Juick‎: Reply posted.
+
+#3007720/7 https://juick.com/m/3007720#7  
+
+‎18.01.2022 | 01:30:32  ‎🍀😇🍀🐝💞🧙🌈🐁💚Crypto Life Jewellery 💎 Layerlet ±∞* 💚‎: #3007720/4 Точнее не реп изучают, а проект PluralityNET  
+
+‎18.01.2022 | 01:30:32  ‎Juick‎: Reply posted.
+
+#3007720/8 https://juick.com/m/3007720#8  
+
+‎18.01.2022 | 01:31:43  ‎🍀😇🍀🐝💞🧙🌈🐁💚Crypto Life Jewellery 💎 Layerlet ±∞* 💚‎: #3007720/4 также временами плодотворно общаюсь с коллективами общемирового AGICONF и российского AGIRUSSIA под лидерством PhD Антона Колонина.  
+
+‎18.01.2022 | 01:31:44  ‎Juick‎: Reply posted.
+
+#3007720/9 https://juick.com/m/3007720#9  
+
+‎18.01.2022 | 01:42:30  ‎🍀😇🍀🐝💞🧙🌈🐁💚Crypto Life Jewellery 💎 Layerlet ±∞* 💚‎: #3007720/4 Ещё у меня есть несколько национально-ориентированный проект многоинтерфейсного гидра-робота по имени АЛЬФАРУС БОТ --- по мотивам DEEP BLUE и ALPHA GO, но русский космизм несколько ограничен своим уклоном, и общемировой проект PLURALITYNET (=:: :: :: :: :: :: ^* PNET*) несколько важнее чем альфарус.  💚⅀±∞*TRANSFINITES¤🤔🧐🙏🌅🌈🌌🧣 IN THE NAME OF I.V.STALIN MY ACCTS https://twitter.com/HystricidaeTech https://beacons.ai/krichuvka https://github.com/hypnosis-i2p 💚  
+
+‎18.01.2022 | 01:42:31  ‎Juick‎: Reply posted.
+
+#3007720/10 https://juick.com/m/3007720#10  
